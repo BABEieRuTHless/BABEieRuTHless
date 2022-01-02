@@ -19,6 +19,7 @@ WELCOME TO BUMBOMMBIE DIMENSION ... WELCOME TO THE CARLIE RENEE DUPLANTIS life T
 and all of the PROJECTx that i've made within my LIFETIME throughout MY HISTORY , i look forward to getting to learn and understand yours 
 for the VALUE of PROOF:in muh funKING FACT of the MATTER that ALL MATTER MATTERs. 
 
+THIS WILL FOREVER BE HELD IN THE HIGHEST REGARD of REMEMBORANCE OF THOSE WHO've LOST THEIR LIVES TO THE FIGHT FOR THEIR NATURAL BORN RIGHTS , FOR THOSE WHO feel as if they are DEFENSELESS towards ANYTHING or ANYONE or even THEMSELVES. FOR THE BETTERMENT OF HUMANITY , for the COMMON KNOWLEDGE FOR THE PUBLIC TO THE PUBLIC FOREVER TO BE SEEN FOR the PROOF behind the FACTs that lie. FOR THE FREEDOM OF HUMAN BEINGS , for the TRUTH behind THE POWER OF vs THE POWER WITHIN. I , Carlie Renee Duplantis born May 8 1997 in Houma Louisiana , have been DOC.u.ment.ed from the age of my birth , by my father , by myself , by my peers and by THEM PEOPLES ... I have Tried myself , i have left RAW footage of my PROOF as best as i could with INTERFERENCE , SELF DEFENSE , public humiliation , discredit , defam , disbeleif , invasion of privacy , invasion of my intellectual rights , IN.vay.sion of my wrongs , MY DOC.u.ment.ed PROOFS FROM ALL OF THE ANGLES THAT I WAS GRANTED ACCESS TO  
 <!---
 BABEieRuTHless/BABEieRuTHless is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
